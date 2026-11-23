@@ -1,3 +1,3 @@
 # Combinados da dupla
-Dia de estudo: a definir
+Dia de estudo: quinta-feira
 Horário: depois da aula
